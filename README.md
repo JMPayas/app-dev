@@ -1,3 +1,7 @@
 **MY FAVORITE SERIES IS DARK**
 ---
 >Dark is a German science fiction thriller television series co-created by Baran bo Odar and Jantje Friese. It ran for three seasons from 2017 to 2020. The story follows characters from the fictional village of Winden, Germany, as they pursue the truth in the aftermath of a child's disappearance. They follow connections between four estranged families to unravel a sinister time travel conspiracy which spans several generations. The series explores the existential implications of time and its effect on human nature. It features an ensemble cast.
+
+>*I don’t remember how I found this show, but I am so glad that I did. This is the first German show I have ever watched, and it has a vibe that is similar to Stranger Things yet very distinct. This show manages to seamlessly weave together three different time periods with tons of characters of many different ages. Even though the concept of time travel and the cyclical nature of time is an extremely difficult concept to understand, Dark does a very thorough job of explaining how events from different time periods can influence each other in a non-linear way. Dark is complex and suspenseful, and there was clearly a lot of effort put into developing the main four families that the story focuses on. Each character was detailed and given attention, and they all fit into their respective time periods and the story as a whole.*
+
+![alt text](https://i.imgur.com/GMSdbCu.jpeg)
